@@ -1,7 +1,7 @@
 hope atleast you understand me 🤧
 
 
-stay with me 🥲
+I'm alone right now 🥲
 
 <!doctype html>
 
